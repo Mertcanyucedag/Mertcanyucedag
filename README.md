@@ -1,5 +1,4 @@
-## YouTube Kanalım  
-[YouTube][(https://www.youtube.com/@theselsius7586)
+
 
 
 <!--
